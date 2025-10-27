@@ -13,7 +13,7 @@
 
 
 ※体の部位、特に手の部分は見ないでください。
-<img width="920" height="625" alt="image" src="https://github.com/user-attachments/assets/0fd252e7-5db5-443c-9b9f-b320d46b1580" />
+<img width="920" height="625" alt="スクリーンショット 2025-10-27 220613" src="https://github.com/user-attachments/assets/85cb8c31-fb72-40c7-8641-47b4e35a7969" />
 
 
 ## 備考
